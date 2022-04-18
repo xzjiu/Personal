@@ -7,13 +7,11 @@
 * 舍友：两名舍友一是jhu研究生，一是jhu博士生，非常好相处，从来没有发生过矛盾，互相不打扰
 * 低价转租 700🔪/月 价格可议
 * 限女生，有意者联系wx: Deneb-98 (备注租房)
-<center> 
-<img src="https://github.com/xzjiu/Personal/blob/main/IMG_2322(20220418-143041).PNG" alt="drawing" width="350"/>
-</center>
+![bedroom](https://github.com/xzjiu/Personal/blob/main/IMG_2322(20220418-143041).PNG)
 
 
 * 房间部分图片如下：
-<img src="https://github.com/xzjiu/Personal/blob/main/IMG_2319.JPG" alt="drawing" width="450"/>
-<img src="https://github.com/xzjiu/Personal/blob/main/IMG_2315.JPG" alt="drawing" width="450"/>
-<img src="https://github.com/xzjiu/Personal/blob/main/IMG_2320.JPG" alt="drawing" width="450"/>
-<img src="https://github.com/xzjiu/Personal/blob/main/IMG_2321.JPG" alt="drawing" width="450"/>
+![bedroom](https://github.com/xzjiu/Personal/blob/main/IMG_2319.JPG)
+![bedroom](https://github.com/xzjiu/Personal/blob/main/IMG_2315.JPG)
+![bedroom](https://github.com/xzjiu/Personal/blob/main/IMG_2320.JPG)
+![bedroom](https://github.com/xzjiu/Personal/blob/main/IMG_2321.JPG)
